@@ -1,9 +1,9 @@
-# Grim
-A story of a coffin salesman named Grim
+# Grim's Memoir
+A story of a coffin salesman named Grim, through the eyes of Grim.
 
 This story was inspired by a writing prompt from reddit: You know when people will die, you are a mortician trying to sell caskets.
 
-Response:
+Initial response:
 
 There's this thing called synaesthesia where certain individuals are able to hear shapes or taste colors. It's a blending of their senses and their perception of the world is fundamentally different than those around them. I was diagnosed with this when I was 6. They said I associated personalities with color. They were partially right. I associate something with color, but it is certainly not personalities. No, it's time of death, and unfortunately the only color I see is grey.
 
