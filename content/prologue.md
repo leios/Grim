@@ -96,3 +96,33 @@ Billy's eyes were diverted to my feet.
 
 But it was mine.
 Those two coffins would more than pay my rent for this month.
+
+---
+
+If I'm honest, I don't think I have ever truly developed empathy for other humans.
+I look back at memories like these and wonder what people thought -- what they still think of me.
+I have tried time and time again to see myself from the outside perspective, but it is just impossible.
+I cannot even see myself in the mirror.
+
+I know that I am statistically tall and thin.
+I know my skin is pale and gait slightly askew.
+I know I stand out.
+I imagine everyone stares at me as I walk by, wondering to themselves about who I am, or worse: wondering if I will talk to them.
+
+Honestly, I never cared what people thought.
+
+Well, that's not entirely true.
+I have had a few acquaintances throughout my life.
+Some of those acquaintances, I would even call friends, although I still wonder if they thought the same of me.
+
+I know this is a memoir, a collection of my memories, thoughts, and experiences, but at the same time, I feel this is just as much a story of the many people I have met throughout my life and how they have coped with the loss of their loved ones.
+
+I know I have never been able to understand others, but this is in part because I have never truly tried.
+Recent events have made me question whether I should.
+
+I am currently writing, alone, bathed in the amber light of the late-afternoon.
+Beams of light pierce through the otherwise empty room, illuminating small specks of dust flittering in the air.
+The table before me is scattered with pages and pages of notes -- memories I have collected throughout the ages.
+
+I suppose it's fitting that a man incapable of seeing other's expressions is also incapable of expressing himself.
+I guess this is my first attempt to reach-out in the only way I know how: talking through my experiences and hoping someone, somewhere understands.
