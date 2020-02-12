@@ -1,6 +1,6 @@
 # Grim
 
-When I was 3, I was diagnosed with prosopagnosia, the inability to discern facial features.
+When I was three, I was diagnosed with prosopagnosia, the inability to discern facial features.
 To me, the human body stops from the shoulders up, and the head is replaced with a skin-toned smudge.
 It's like the artist who paints reality on my eyes was stricken by the sheer complexity of the human face.
 After all, most expressions of emotion and empathy are conveyed on that very canvas, and how could anyone truly capture the true beauty of the human soul?
