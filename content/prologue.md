@@ -17,7 +17,7 @@ At first, I thought that I associated personalities with color, and I think I wa
 I associate something with color, but it is certainly not personalities.
 My prosopagnosia seems to be connected to the individual's life force.
 
-That is to say, if someone is far from death, I see a fleshy haze around their face, obscuring their facial features, but as their death draws nearer and nearer, I begin to discern more and more until I can see them perfectly and they are a corpse.
+That is to say, if someone is far from death, I see a gray haze around their face, obscuring their facial features, but as their death draws nearer and nearer, I begin to discern more and more until I can see them perfectly and they are a corpse.
 I guess I always had trouble communicating with people because of this.
 On the one hand, I knew when others were talking and could definitely tell when they were agitated or joyful from their voices, but I could never see their faces.
 There was always a missing element to our conversations.
