@@ -8,7 +8,8 @@ The artist might try again and again, constantly redrawing the head to be all sh
 
 I know what the doctors said.
 I know that what I am about to say does not make sense.
-But I have a different idea.
+The problem is that people with prosopagnosia can at least still *see* faces. I cannot.
+For this reason, I have a different idea.
 
 See, there's this thing called synaesthesia where certain individuals are able to hear shapes or taste colors.
 It's a blending of their senses and their perception of the world is fundamentally different than those around them.
